@@ -99,4 +99,17 @@ VARIOS
 ![image](https://user-images.githubusercontent.com/91744605/159046216-1f104a45-3e10-4073-873d-a6201f758b8d.png)
 
 #4
+![image](https://user-images.githubusercontent.com/91744605/159047569-4efd0c80-ffe0-4211-9c53-816d2d9d072b.png)
+
+#5
+![image](https://user-images.githubusercontent.com/91744605/159048236-08225323-187a-4201-bc71-dbba4ac8505d.png)
+
+#6
+![image](https://user-images.githubusercontent.com/91744605/159048601-120c3203-9388-490c-89f7-f16d99f5d6d1.png)
+
+#7
+![image](https://user-images.githubusercontent.com/91744605/159050670-b29e0466-3006-4f24-b88f-2802f0b94586.png)
+
+#8
+
 
